@@ -1,1 +1,1 @@
-My name is Nyasemhwe Reuben. A student at Palm University College,  studying computer science.  I like to make research and go out with my friends to chill
+### Hi there, I'm Reuben Nyasemhwe, a BSc. Computer Science student at Palm University College, Ghana. 🎓 BSc. Computer Science student at Palm University College,📫 Reach me at: rnyasemhwe@palm.edu.gh 😄 Pronouns: He/Him/His
